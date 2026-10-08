@@ -1,1 +1,1 @@
-# For-collage
+# For-college
